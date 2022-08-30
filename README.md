@@ -1,2 +1,2 @@
-# spiritualmaterialabuja.github.io
-SEO version of Ezennaya site
+# spiritualmaterialsabuja.github.io
+Eccomerce Website For Spiritual Materials 
